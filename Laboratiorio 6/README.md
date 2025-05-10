@@ -1,0 +1,10 @@
+# Pruebas lab 6
+![1](https://github.com/user-attachments/assets/08195fa6-33df-4c96-9aa1-86e0f0007dd1)
+![2](https://github.com/user-attachments/assets/e9a122d7-274a-4ddf-9bb1-6f388caa496f)
+![3](https://github.com/user-attachments/assets/b15e95bd-a903-4efb-a85f-6d42866aa17e)
+![4](https://github.com/user-attachments/assets/941d29e2-2986-4bc4-992e-956be2acbb7d)
+![5](https://github.com/user-attachments/assets/af1ea9ec-1fd9-4d16-84cf-61a20aa36382)
+![6](https://github.com/user-attachments/assets/40120000-8d1d-45b4-84c7-f21895ed1927)
+![7](https://github.com/user-attachments/assets/e137bd4c-2d97-4bd6-995a-06c47ebd3d44)
+![8](https://github.com/user-attachments/assets/9f9b2414-76f3-4e83-8d30-81e0c36a126a)
+![9](https://github.com/user-attachments/assets/22e789ce-0a4e-4ec0-a592-ff63e2beea38)
